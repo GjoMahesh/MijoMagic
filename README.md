@@ -1,0 +1,2 @@
+# MijoMagic
+Quotes
